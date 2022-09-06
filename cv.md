@@ -7,10 +7,9 @@
 ---
 
 ### Contacts
-
-**Discord**: Dzhavid#2863
-**E-mail**: strategy05@mail.ru
-**Telegram**: [@rashidovDS](https://t.me/https://t.me/rashidovDS 'https://t.me/rashidovDS')
+*  **Discord**: Dzhavid#2863
+*  **E-mail**: strategy05@mail.ru
+*  **Telegram**: [@rashidovDS](https://t.me/https://t.me/rashidovDS 'https://t.me/rashidovDS')
 
 ---
 
